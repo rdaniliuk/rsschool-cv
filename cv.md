@@ -10,7 +10,7 @@
 * **GitHub:** https://github.com/rdaniliuk
 
 ## About Me 
-I am 25 years old. At the moment I work in logistics and organize international transportation. I don't have any experience in IT, but I want to change the situation, because I believe that in this area, if you wish, you can constantly learn something new and develop in the professional sphere while inside the company.
+I am 25 years old. At the moment I work in logistics and organize international transportation. I don't have any experience in IT, but I want to change the situation because I believe that in this area if you wish, you can constantly learn something new and develop in the professional sphere while inside the company.
 
 I can attribute sociability, stress istance and a great sense of humor to my advantages
 
