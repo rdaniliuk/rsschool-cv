@@ -3,7 +3,7 @@
 # **Roman Daniliuk**
 
 ## Contacts
-* **Location:** Warszawa, Poland
+* **Location:** Warsaw, Poland
 * **Phone:** +48 502 834 764
 * **Email:** r.daniliuk.22@gmail.com
 * **Discord:** Roman (@rdaniliuk)
